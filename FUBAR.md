@@ -17,3 +17,5 @@ Round 2
 Bob and Carol FTW!!!
 
 FEATURE 6 SWEET TED AND ALICE ROUND TWO
+
+Ted and Carol like cats.
