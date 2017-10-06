@@ -50,3 +50,7 @@ HAHAHAHA
 
 Q: What did the farmer say when he lost his tractor?
 A: Where's my tractor?
+
+
+
+Packers are better than Seahawks, it's the truth.
