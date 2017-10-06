@@ -16,6 +16,10 @@ Round 2
 
 Bob and Carol FTW!!!
 
+
+Round 2 There's a fine line between fishing and just standing on the shore like an idiot.
+
 FEATURE 6 SWEET TED AND ALICE ROUND TWO
 
 Ted and Carol like cats.
+
